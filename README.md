@@ -1,1 +1,0 @@
-# Bizmates-GTalent.github.io
